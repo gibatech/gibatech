@@ -1,0 +1,2 @@
+- 👋 Olá, eu sou o @gibatech
+- 👀 Estou interessado em compartilhar conhecimentos em tecnologia :)
